@@ -1,0 +1,2 @@
+# uckka
+Surviving deserves itself.
